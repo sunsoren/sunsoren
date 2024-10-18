@@ -6,7 +6,7 @@
 
   ***Other Interests are*** . . . ₊˚⊹ ♡
   
-✧. ┊  Arcane ⭒ Be More Chill ⭒ Criminal Minds ⭒ First Kill ⭒ IT ⭒ Interview With The Vampire ⭒ Marvel ⭒ Shameless ⭒ South Park ⭒ The Owl House ⭒ The Wilds ⭒ The Winchesters ⭒ The Quarry ⭒ Young Royals .
+✧. ┊  Arcane ⭒ Be More Chill ⭒ Criminal Minds ⭒ First Kill ⭒ IT ⭒ Interview With The Vampire ⭒ Marvel ⭒ Shameless ⭒ South Park ⭒ The Dragon Prince ⭒ The Owl House ⭒ The Wilds ⭒ The Winchesters ⭒ The Quarry ⭒ Young Royals .
 
 <!---
 sunsoren/sunsoren is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
