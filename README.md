@@ -1,5 +1,7 @@
  ˚₊· ͟͟͞͞➳❥ I'm Connor or Soren !!
 
+ ᯓ★ DNI sharpwolf and that's about it . . . please stop roleplaying them in a public setting, it's very uncomfortable :(
+
   ***Fandoms I have ponies for are*** . . . ₊˚⊹ ♡
 
 ✧. ┊  All Saints Street ⭒ ⁭Baldurs Gate 3 ⭒ Chonny Jash ⭒ COD ⭒ Conan The Mighty Pig ⭒ Content Warning ⭒ Detroit Become Human ⭒ Epic The Musical ⭒ Fortnite ⭒ Good Omens ⭒ Ghost (Band) ⭒ Generation Loss ⭒ Hades (Games) ⭒ Howling Under The Moonlight ⭒ Heathers ⭒ If I See You Again Tomorrow (Book) ⭒ Lucifer (Show) ⭒ Monster Prom ⭒ Palia ⭒ Regretevator ⭒ Repurpose ⭒ Supernatural ⭒ She-ra ⭒ Sk8 ⭒ The Song of Achilles ⭒ The Maze Runner ⭒ The Stanley Parable ⭒ Vocaloid ⭒ Zenless Zone Zero ⭒ 8:11 .
