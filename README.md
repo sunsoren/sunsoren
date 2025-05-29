@@ -4,7 +4,7 @@
 
   ***Fandoms I have ponies for are*** . . . ₊˚⊹ ♡
 
-✧. ┊  All Saints Street ⭒ ⁭Baldurs Gate 3 ⭒ Chonny Jash ⭒ COD ⭒ Conan The Mighty Pig ⭒ Content Warning ⭒ Detroit Become Human ⭒ Epic The Musical ⭒ Fortnite ⭒ Good Omens ⭒ Ghost (Band) ⭒ Generation Loss ⭒ Hades (Games) ⭒ Howling Under The Moonlight ⭒ Heathers ⭒ If I See You Again Tomorrow (Book) ⭒ Lucifer (Show) ⭒ Monster Prom ⭒ Palia ⭒ Regretevator ⭒ Repurpose ⭒ Supernatural ⭒ She-ra ⭒ Sk8 ⭒ The Song of Achilles ⭒ The Maze Runner ⭒ The Stanley Parable ⭒ Vocaloid ⭒ Zenless Zone Zero ⭒ 8:11 .
+✧. ┊  All Saints Street ⭒ ⁭Baldurs Gate 3 ⭒ Chonny Jash ⭒ COD ⭒ Conan The Mighty Pig ⭒ Content Warning ⭒ Detroit Become Human ⭒ Epic The Musical ⭒ Forsaken (Roblox) ⭒ Fortnite ⭒ Good Omens ⭒ Ghost (Band) ⭒ Generation Loss ⭒ Hades (Games) ⭒ Howling Under The Moonlight ⭒ Heathers ⭒ If I See You Again Tomorrow (Book) ⭒ Lucifer (Show) ⭒ Monster Prom ⭒ Palia ⭒ Regretevator ⭒ Repurpose ⭒ Supernatural ⭒ She-ra ⭒ Sk8 ⭒ The Song of Achilles ⭒ The Maze Runner ⭒ The Stanley Parable ⭒ Vocaloid ⭒ Zenless Zone Zero ⭒ 8:11 .
 
   ***Other Interests are*** . . . ₊˚⊹ ♡
   
