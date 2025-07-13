@@ -1,6 +1,6 @@
  ˚₊· ͟͟͞͞➳❥ I'm Connor or Soren !!
 
- ᯓ★ DNI sharpwolf and that's about it . . . please stop roleplaying them in a public setting, it's very uncomfortable :(
+ ᯓ★ DNI sharpwolf and that's about it . . . 
 
   ***Fandoms I have ponies for are*** . . . ₊˚⊹ ♡
 
